@@ -1,1 +1,1 @@
-# Bachelorarbeit
+# Bachelorarbeit von Tim Lehmann
